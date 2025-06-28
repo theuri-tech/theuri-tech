@@ -60,7 +60,7 @@ My goal is to become a **young entrepreneur** who builds tools that:
 
 ###  Connect With Me
 
--  [LinkedIn](https://linkedin.com/in/scott-theuri)
+-  [LinkedIn(https://www.linkedin.com/in/scott-theuri-06a918293/)
 -  Email: theuriscottorg@gmail.com
 -  Portfolio: Coming soon
 
